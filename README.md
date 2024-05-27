@@ -1,4 +1,4 @@
-👋 Hi, I’m @Ehsan-eslami
+👋 Hi, I’m [EshanEslami](https://github.com/Ehsan-eslami)
 👀 I’m interested in Programming, Mathematics, and HumanScience(Sociology, Economy and philosophy).
 🌱 I’m currently Studying Finance and learning algorithms and I strive for a freer world.
 📫 You can find me in linktree => 🔗linktr.ee/Ehsaneslami
